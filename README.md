@@ -1,2 +1,0 @@
-# danielhalvarenga.github.io
-# asjdklajsdksd
